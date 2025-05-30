@@ -1,0 +1,1 @@
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=2500&pause=1000&color=02F707&width=750&height=120&lines=Ol%C3%A1!+Me+chamo+Samuel+%7C+Hello!+My+name+is+Samuel;Tenho+19+anos+%7C+I'm+19+years+old;Sou+brasileiro+%7C+I'm+Brazilian;Cursando+Ci%C3%AAncia+de+Dados+%7C+Studying+Data+Science)](https://git.io/typing-svg)
